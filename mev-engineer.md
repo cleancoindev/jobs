@@ -32,3 +32,5 @@ We don’t discriminate on the basis of race, nationality, gender identity, age,
 
 Email: nathanw@tutanota.com  
 Discord: Nathan_#2260
+
+Interested.  Please read commit info, Nathan, thanks! 
